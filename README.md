@@ -45,7 +45,7 @@ We encourage contributors to help keep this repository updated with the latest i
 - Watch the repository for new updates.
 
 ## 🔗 Useful Links
-[cast of all the queen's men](https://btowncelebrity.com/all-the-queens-men-cast/)
+[Cast of All The Queen's Men](https://btowncelebrity.com/all-the-queens-men-cast/)
 🎬 Stay tuned for more updates on the cast and behind-the-scenes insights!
 
 
